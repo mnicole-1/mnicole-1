@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bullindahn@gmail.com**
 
-- ⚡ Fun fact **I think that**
+- ⚡ Fun fact **is it fascinating that we forget things in our own heads **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
